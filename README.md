@@ -3,3 +3,4 @@
 
 
 
+Yes I have mental health issues, no I'm not going to share it all with you just because you feel bad.
