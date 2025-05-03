@@ -9,6 +9,7 @@ Hello, I'm Winston. I am a big talker and love to spread knowledge to others. I 
 
 Currently, I'm not in the best state of mind. I have become delusional, extremely paranoid, and I have been isolating myself. I am sorry if I do not respond to you with the utmost respect, but at the moment, I can not promise that I will be kind when it comes to talking. 
 
+These aren't fandoms I'm in, It's my interests : Daniel Tiger, Sesame Street (specifically the vintage episodes), chemistry, zoology, SpongeBob, danny phantom, I have lots of interests so I can't really name them all.
 
 
 
