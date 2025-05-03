@@ -3,7 +3,27 @@
 
 -I said, "Are you real?" He said, "I'm as real as you make me".-
 
-HEY! BIG NERD AND RESEARCH HERE! I MAKE DOCUMENTS ON THINGS I WANT TO LEARN ABOUT! HERE IS MY CURRENT ONE THAT IS A WORK IN PROGRESS! --> https://docs.google.com/document/d/1sNU7Dz3kFFK_jPBcMbVO89cTeD72AHhENevPjCQkprE/edit?usp=sharing
+HEY! BIG NERD AND RESEARCHER! I made a poem that I'd like to share with the world.
+--------
+An Endless spiral.
+
+By: Winston
+ 
+I do believe in soulmates, not in the way most would think.
+No roses, no hand to hold, but instead someone who sees the rot beneath a blooming flower.
+
+I believe someone out there will save me. Save me from the mental loop I cannot break. A spiral that doesn’t go downward but inward, curling tighter each day. Until the walls start to speak,
+
+Each morning arrives colorless, hollow, and familiar. The mirror says nothing new. I walk through the world on autoplay. Smiling like a puppet with glass for skin. 
+
+I wonder if time is mocking me. Each hour drips like a leaking faucet, not loud but rhythmic. Each night caves into itself, digging my grave. 
+
+Madness doesn’t scream, it whispers. Lingers in the cracks of silent moments, until I break and the glass drives deep where the ache already lived.
+
+And yet I still believe that someone out there will touch the loop and melt it. Who will put a hand on my shoulder and look at me, will say, “I see it too.”
+
+----------------
+This poem is about my experience with a mental loop, everything is the same, which makes me break down into insanity. I am not that poetic, but I like to express myself the best I can, hope you like it! ^_^ Anyways, let's get to know me!
 
 Hello, I'm Winston. I am a big talker and love to spread knowledge to others. I am planning on making a folder of all my research and publicly linking it here! I am a guy that sucks in all the knowledge I find possible. I'd love to hear facts from any players, but they have to be logical facts and not just I heard this, but I don't know if it's true. I tend to make sure my knowledge I gain is from trusted sources like articles, books, and Google Scholar. I do not like Google & Wikipedia as most of the stuff on there isn't reliable, and anybody can change Wikipedia's stuff. 
 
