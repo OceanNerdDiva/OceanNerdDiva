@@ -34,6 +34,6 @@ Things I will mention because they affect how I socialize, and it will be better
 I have autism, intermittent explosive disorder, ptsd, adhd, and yes I'm getting help but I'm in psychosis.
 
 
-These aren't fandoms I'm in, It's my interests : Daniel Tiger, Sesame Street (specifically the vintage episodes), chemistry, zoology, SpongeBob, danny phantom, I have lots of interests so I can't really name them all.
+These aren't fandoms I'm in, It's my interests : Daniel Tiger, Sesame Street (specifically the vintage episodes), chemistry, Dc comics, zoology, SpongeBob, psychology, Danny Phantom, I have lots of interests, so I can't really name them all.
 
 
