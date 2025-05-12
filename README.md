@@ -38,6 +38,6 @@ These aren't fandoms I'm in, It's my interests : Daniel Tiger, Sesame Street (sp
 
 GUYS I REALIZED WHY I AM SO INTO MARINE BIOLOGY i learned that I just like all kind of fields in science and biology, Marine biology was the first thing I learned and I stuck with it for so long. Now I'm into chemistry but still learning marine biology. I don't think marine biology will ever die out for me.
 
-My special interest is: Nintendo, mostly the 3ds games like tomodatchi, miitopia, animal crossing new leaf, happy home designer, fantasy life, yeah I could go on. 
+My special interest is: Nintendo, mostly the 3ds games like tomodatchi, miitopia, animal crossing new leaf, happy home designer, fantasy life, yeah I could go on. I also like science but it dies after a while. I liked nintendo ever since I was introduced to my moms 3ds when I was 5.
 
 
