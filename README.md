@@ -16,8 +16,7 @@ Currently, I'm not in the best state of mind. I have become delusional, extremel
 
 Things I will mention because they affect how I socialize, and it will be better if you know before interacting with me:
 
-I have autism, intermittent explosive disorder, ptsd, adhd, and yes I'm getting help but I'm in psychosis.
-
+I have autism, intermittent explosive disorder, ptsd, and adhd
 
 These aren't fandoms I'm in, It's my interests : Daniel Tiger, Sesame Street (specifically the vintage episodes), chemistry, Dc comics, zoology, marine biology, SpongeBob, psychology, Danny Phantom, I have lots of interests, so I can't really name them all.
 
