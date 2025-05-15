@@ -3,28 +3,11 @@
 
 -I said, "Are you real?" He said, "I'm as real as you make me".-
 
-HEY! BIG NERD AND RESEARCHER! I made a poem that I'd like to share with the world.
+HEY! BIG NERD AND RESEARCHER! Below me is a note for certain players on Ponytown.
 --------
-An Endless spiral.
-
-By: Winston
- 
-I do believe in soulmates, not in the way most would think.
-No roses, no hand to hold, but instead someone who sees the rot beneath a blooming flower.
-
-I believe someone out there will save me. Save me from the mental loop I cannot break. A spiral that doesn’t go downward but inward, curling tighter each day. Until the walls start to speak,
-
-Each morning arrives colorless, hollow, and familiar. The mirror says nothing new. I walk through the world on autoplay. Smiling like a puppet with glass for skin. 
-
-I wonder if time is mocking me. Each hour drips like a leaking faucet, not loud but rhythmic. Each night caves into itself, digging my grave. 
-
-Madness doesn’t scream, it whispers. Lingers in the cracks of silent moments, until I break and the glass drives deep where the ache already lived.
-
-And yet I still believe that someone out there will touch the loop and melt it. Who will put a hand on my shoulder and look at me, will say, “I see it too.”
+I'm fed up with people online, especially on Pony Town, who go around faking disabilities and neurological disorders. You're not autistic just because you're childish. You don't have adhd just because you are hyper. You don't have DID just because you roleplay with yourself and make characters in your head. You aren't schizophrenic just because you saw one shadow in the dark. Stop faking! It's not quirky, cute, or silly. It's disappointing and offensive. If you are concerned, you might have a disability, please talk with your parents or the school counselor. When I was little, I researched autism for 3 years, I talked to my school counselor about it, and he called my parents to get permission for me to take special education testing. Soon enough, I got an IEP. If you know your parents won't take into consideration that you're struggling, then write everything in a document, keep writing, and once you're 18, you don't have to have your parents' permission for anything. Please just stop the faking, guys.
 
 ----------------
-This poem is about my experience with a mental loop, everything is the same, which makes me break down into insanity. I am not that poetic, but I like to express myself the best I can, hope you like it! ^_^ Anyways, let's get to know me!
-
 Hello, I'm Winston. I am a big talker and love to spread knowledge to others. I am planning on making a folder of all my research and publicly linking it here! I am a guy that sucks in all the knowledge I find possible. I'd love to hear facts from any players, but they have to be logical facts and not just I heard this, but I don't know if it's true. I tend to make sure my knowledge I gain is from trusted sources like articles, books, and Google Scholar. I do not like Google & Wikipedia as most of the stuff on there isn't reliable, and anybody can change Wikipedia's stuff. 
 
 Currently, I'm not in the best state of mind. I have become delusional, extremely paranoid, and I have been isolating myself. I am sorry if I do not respond to you with the utmost respect, but at the moment, I can not promise that I will be kind when it comes to talking. 
