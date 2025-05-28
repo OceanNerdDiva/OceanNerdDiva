@@ -6,10 +6,4 @@
 
 ### Special interest: Nintendo, specifically the older consoles and games.
 
-This is in the process of making so please be patient.
-
-
-I am a troubled person, which I'm aware of, that's why I will say this once. Please do not friend me if you can't handle someone who is mentally ill. I have extreme paranoia, and it has caused distrust with many people. I am extremely open about these things, though, because I was never taught that it is wrong to be open. I don't know why I'm paranoid; my counselor thinks it's because of something in the past, but honestly, who knows? I believed I'm being watched, I have been followed before, I have had experiences I can not explain properly, a lot has happened that made me believe certain things most would think is out of touch with reality. Don't worry, I am in a 4c school-based program that is supposed to help me. I can not promise I will get better, so please don't try to be my friend if you can't deal with me.
-
-Anyways, let's change the subject. I am a big fan of DC comics, movies, games, and TV shows. I love the DC universe. I am currently watching the TV show Gotham and watching a gameplay of Batman: Arkham night! I am also a big fan of Nintendo games like tomodatchi life, miitopia, animal crossing new leaf, luigi's mansion, and much more! 
-
+DO NOT INTERACT WITH ME. I'm stressed af, I WANT TO READ MY DAMN DC COMICS BUT I CAN'T DO ANYTHING. My body is refusing to cooperate withhhhh cleaning my room and now the mess is making me feel like I'm suffocating. This stupid ass chord to my headphones keeps touching my neck, I keep getting extremly hot that I have to rip off my socks, my pants are bothering me but I don't have any loose pants. I'm stressing out mann don't talk to me unless you want somebody to be rude today. BAD DAY OKAY
