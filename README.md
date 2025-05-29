@@ -4,6 +4,7 @@
 
 ---------------------------------
 
-### Special interest: Nintendo, specifically the older consoles and games.
+### Special interest: Nintendo, specifically the older consoles and games and DC comics, movies, literally live laugh love.
 
-DO NOT INTERACT WITH ME. I'm stressed af, I WANT TO READ MY DAMN DC COMICS BUT I CAN'T DO ANYTHING. My body is refusing to cooperate withhhhh cleaning my room and now the mess is making me feel like I'm suffocating. This stupid ass chord to my headphones keeps touching my neck, I keep getting extremly hot that I have to rip off my socks, my pants are bothering me but I don't have any loose pants. I'm stressing out mann don't talk to me unless you want somebody to be rude today. BAD DAY OKAY
+Status : You can interact but my stomach is in PAINNNN so I might complain about it or not talk as much. Oh yeah I really need to fix my Strawpage and shit. I been lacking lately because I'm sick and stressed.
+
