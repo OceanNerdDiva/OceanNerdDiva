@@ -14,10 +14,7 @@
 ![a](https://64.media.tumblr.com/19b3d9b4064728d04c3555860f590352/0f77eb4281c6b2ee-2d/s100x200/1b0e17f53f712d1e64facb61ee69b5ac20437218.gifv) ![a](https://64.media.tumblr.com/8c7217648c5edb1c978f4af6cdddc7e5/0f77eb4281c6b2ee-86/s100x200/8f520f9476059ecbea9e7125a56dad83cfe03544.gifv) ![a](https://64.media.tumblr.com/4a73d7d31b0e1ae26f0494c7f07b3ce0/0f77eb4281c6b2ee-e1/s100x200/242f6a633b803a9e9d2ddcd7cc08ff0e668b4ee2.gifv)![a](https://64.media.tumblr.com/299c85b7cf9872700991672cb8f15661/1d9199f2cdd51f15-7e/s100x200/c07c7aae728d663bb86f687aa6575d755affa99e.gifv)
 
 
-Hello! I'm Winston. I am a big debater, and I love education. Currently, I am mentally unwell, so I might not be talking a lot or making friends. I am focusing more on my health rather than interactions with others. 
-
-Yes, I do debate with people. I find it interesting how other people view things, and it also educates me a bit. If you do want to debate with me, I am fine with it, but if it's something I'm not well educated in, then I won't debate, but I'd love to hear about it. I enjoy learning new things. I used to be into marine biology, so I am educated in that topic. I love sucking in all the knowledge possible. There are so many interesting things to learn, so please don't be afraid to chat about anything you'd like.
-
+Hello! I'm Winston. I am a big debater, and I love education. Currently, I am mentally unwell, so I might not be talking a lot or making a lot of friends. I am focusing more on my health rather than interactions with others. I am somewhat open to making friends because I feel as if it will help me improve, since I've been isolating myself a lot lately.
 
 
 <img src="https://64.media.tumblr.com/d67c1f70b3fc3bc1fc6789e6eb987d11/855c77272c553772-39/s250x400/3313fb35c6fb67133ecb690728e780a726add2ee.gifv" alt="a" width="500"/>
