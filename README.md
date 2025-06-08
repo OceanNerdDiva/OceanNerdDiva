@@ -1,5 +1,6 @@
 ![a](https://i.pinimg.com/736x/a7/f9/42/a7f942a90c2e61970b67340c62a5e861.jpg)
 # MARINEGUY 🐟
+## "We can't really help who we are."
 
 Hello! I am MarineGuy. I have been a big nerd in marine biology since I was 6, basically when I gained consciousness and self-awareness! I spend most of my days researching marine animals and reading advances in marine biology, which has 90+ volumes! The whole reason my name is MarineGuy is to express how dedicated I am to marine biology, and marine biology is like my personality. Currently, I am researching Ctenophores! Here is a sneak peek of the document. I am not sharing it fully due to its slow progress on getting done.
 
