@@ -1,6 +1,6 @@
 ![a](https://i.pinimg.com/736x/a7/f9/42/a7f942a90c2e61970b67340c62a5e861.jpg)
 # MARINEGUY 🐟
-## "We can't really help who we are."
+## I want to get this out of the way, but if I'm gone for over a year on Ponytown, I'm probably dead. Now the reason I am saying this now is because of poverty and being poor. I live in a household that barely gets enough food, we only have bread,cheese ramen, and frozen chicken. Which I can't eat ramen or chicken do to sensory issues. I'm always eating grilled cheese. But anyways, I have iron defiency anemia which means I lack iron in my blood cells, that isn't healthy. And yes I have iron pills but my mother won't let me refill them and my diet is bad. I'm malnourished and constantly tired. Since my anemia is untreated I am more likely to die. I am hoping I'll be able to live long enough so I can move out and buy my own food so I can restore my health but I don't know how long that will take. Hopefully, I will get better but right now I am not.
 
 Hello! I am MarineGuy. I have been a big nerd in marine biology since I was 6, basically when I gained consciousness and self-awareness! I spend most of my days researching marine animals and reading advances in marine biology, which has 90+ volumes! The whole reason my name is MarineGuy is to express how dedicated I am to marine biology, and marine biology is like my personality. Currently, I am researching Ctenophores! Here is a sneak peek of the document. I am not sharing it fully due to its slow progress on getting done.
 
@@ -9,3 +9,5 @@ Hello! I am MarineGuy. I have been a big nerd in marine biology since I was 6, b
 Feel free to come up and interact with me any time! I also would love suggestions on what I should research next. I already have a big list in my notebook from Ponytown players' suggestions. Most of them I won't do because some are really basic, NO OFFENSE. But I do not want to research something that isn't all that interesting. And then there are some people who just say "research sharks." Without being specific. UGH! I love marine biology so much, it's my life. I sleep to the ocean sounds. When I'm half asleep, I watch people dive into the ocean and explore. Like last night, I was watching some guy dive into the ocean, and this lionfish kept following him around the whole video. It was funny. And then in the morning, I'm mostly researching, watching documentaries, and playing my 3DS. 
 
 Like my two special interests are just Nintendo games and Marine biology, they are both balanced and are my life. I love it some much, I'm so happy right now.
+
+
