@@ -11,6 +11,6 @@ Like my two special interests are just Nintendo games and Marine biology, they a
 
 Just know if I'm not here in a year don't expect me to come back cause I'm probably dead.WHICH DON'T BE SAD OVER IT. I'm sick, hopefully i will get better. Next year I'll be living on my own, so if I make it next year I can be able to get my health back on track! ^_^
 
-Uhm, also if you're close to me, I like to call you, I'm mostly mute, though not because I don't want to talk, but most of the time I'm vocally stimming. THOUGH I do unmute sometimes my voice is always tired and I stutter a lot so sorry man :/ try to understand me, ok?
+Uhm, also if you're close to me, I like to call you, I'm mostly mute though not because I don't want to talk, but most of the time I'm vocally stimming. THOUGH I do unmute sometimes my voice is always tired and I stutter a lot so sorry man :/ try to understand me, ok?
 
 
