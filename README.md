@@ -1,16 +1,21 @@
-![a](https://i.pinimg.com/736x/18/e2/10/18e210f5e6f8c60968b9a5160a02ba19.jpg)
-# MARINEGUY 🐟
+![a](https://i.pinimg.com/736x/aa/78/0b/aa780b046918e11425430e9da7415744.jpg)
+#                           $${\color{orange}🐠MARINEGUY🐠}$$
 -----
-Hello! I am MarineGuy. I have been a big nerd in marine biology since I was 6, basically when I gained consciousness and self-awareness! I spend most of my days researching marine animals and reading advances in marine biology, which has 90+ volumes! The whole reason my name is MarineGuy is to express how dedicated I am to marine biology, and marine biology is like my personality. Currently, I am researching Ctenophores! Here is a sneak peek of the document. I am not sharing it fully due to its slow progress on getting done.
+## $${\color{orangered}•Roleplayer •Writer •Artist}$$
 
-![a](https://media.discordapp.net/attachments/1261066115736539166/1380788804738355271/image.png?ex=68452748&is=6843d5c8&hm=271ca0fb35c1d8e10c5f6a786fd954c46be78d55cf28e0926117afe6834d114c&=&format=webp&quality=lossless&width=601&height=464)
+![a](https://64.media.tumblr.com/4f320bcfcd99465377a4d8da20438dbc/db6564cf1140779b-91/s250x400/54a0e26d72db6aab324aeb68ae56abe3c2a73bd6.gifv) ![a](https://64.media.tumblr.com/be9725eadff697ce400b9af5029b54d9/db6564cf1140779b-7d/s250x400/40dd5f8a4e6e086905958e811e8be35cb532ec63.gifv) ![a](https://64.media.tumblr.com/2c9abed929b0b46c04c70629eeb44fb1/db6564cf1140779b-f9/s250x400/a41a2ecb8280dadfafb6326ce065fa467e205dab.gifv)
 
-Feel free to come up and interact with me any time! I also would love suggestions on what I should research next. I already have a big list in my notebook from Ponytown players' suggestions. Most of them I won't do because some are really basic, NO OFFENSE. But I do not want to research something that isn't all that interesting. And then there are some people who just say "research sharks." Without being specific. UGH! I love marine biology so much, it's my life. I sleep to the ocean sounds. When I'm half asleep, I watch people dive into the ocean and explore. Like last night, I was watching some guy dive into the ocean, and this lionfish kept following him around the whole video. It was funny. And then in the morning, I'm mostly researching, watching documentaries, and playing my 3DS. 
 
-Like my two special interests are just Nintendo games and Marine biology, they are both balanced and are my life. I love it some much, I'm so happy right now.
 
-Just know if I'm not here in a year don't expect me to come back cause I'm probably dead.WHICH DON'T BE SAD OVER IT. I'm sick, hopefully i will get better. Next year I'll be living on my own, so if I make it next year I can be able to get my health back on track! ^_^
 
-Uhm, also if you're close to me, I like to call you, I'm mostly mute though not because I don't want to talk, but most of the time I'm vocally stimming. THOUGH I do unmute sometimes my voice is always tired and I stutter a lot so sorry man :/ try to understand me, ok?
+ 
+# I am a big nerd in marine biology, having done multiple research papers about marine life. I also am into role-playing! Though I am not a big fan of dry role-players. I like to do art for the role-plays I have been in. I have a few drawings from Rosewood orphanage :3. I enjoy writing lore for my OCS and just having fun making Strawpage websites.
+
+![a](https://64.media.tumblr.com/6f4dd00f9904a2d59f6d4ef1c2bff875/5ac7c5d6f23cab0a-40/s100x200/6db4fc75895c02c3ecce67f70e4c2d396271cc87.gifv) ![a](https://64.media.tumblr.com/17ca5e32968133ff4f52ee29ef5b44b6/5ac7c5d6f23cab0a-c8/s100x200/e656394ce263624b578edad9ad36a3a607f30ade.gifv) ![a](https://64.media.tumblr.com/b1599cd677172efc59d1c53a7f483c1e/5ac7c5d6f23cab0a-14/s100x200/67b23c1469fa882c700ac7f4f92b21deb4687222.gifv) ![a](https://64.media.tumblr.com/41334f3865028948f74157b5a76dc939/5ac7c5d6f23cab0a-c2/s100x200/baefecc42b2587061d0acda7371d1c90f5386d84.gifv) ![a](https://64.media.tumblr.com/76d0c6c0bf3765b25020fe27851b39b0/5ac7c5d6f23cab0a-9e/s100x200/8d60040839bd4945593d3f3187ef1eb059ab012f.gifv) ![a](https://64.media.tumblr.com/66eceef3cc85213854038441181c6780/5ac7c5d6f23cab0a-8d/s100x200/c8afbbce0b3d04873560dcd56795bcc935fc2ff9.gifv) ![a](https://64.media.tumblr.com/212eabc960bc21e9b82083840be8c93d/5ac7c5d6f23cab0a-d3/s100x200/5f2badd0d89e78a17e8b531c420ebb1d079a174f.gifv)
+
+
+
+
+![a](https://i.pinimg.com/736x/d1/a1/17/d1a117cb3e1e8838bc5fd9e134bfb57e.jpg)
 
 
